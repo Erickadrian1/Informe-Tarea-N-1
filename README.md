@@ -109,6 +109,30 @@
 **Ejercicios Capitulo 2**
 
 ![49](https://user-images.githubusercontent.com/84588860/121161076-40f9a080-c812-11eb-827a-aa52fa150f4f.jpeg)
+![50](https://user-images.githubusercontent.com/84588860/121163579-874fff00-c814-11eb-8cdd-b015e529f576.jpeg)
+![51](https://user-images.githubusercontent.com/84588860/121163581-88812c00-c814-11eb-9684-0ab175c9f857.jpeg)
+![52](https://user-images.githubusercontent.com/84588860/121163582-88812c00-c814-11eb-9e96-0f371208759f.jpeg)
+![53](https://user-images.githubusercontent.com/84588860/121163583-88812c00-c814-11eb-871e-511d94c3a121.jpeg)
+![54](https://user-images.githubusercontent.com/84588860/121163584-8919c280-c814-11eb-8f9c-2007477bdfd2.jpeg)
+![55](https://user-images.githubusercontent.com/84588860/121163587-8919c280-c814-11eb-9ff2-274d6745c5a6.jpeg)
+![56](https://user-images.githubusercontent.com/84588860/121163688-9e8eec80-c814-11eb-8081-e797f41a3b1a.jpeg)
+![57](https://user-images.githubusercontent.com/84588860/121163691-9f278300-c814-11eb-99ae-0ba1190c9852.jpeg)
+![58](https://user-images.githubusercontent.com/84588860/121163694-9fc01980-c814-11eb-81be-85b908d64132.jpeg)
+![59](https://user-images.githubusercontent.com/84588860/121163696-9fc01980-c814-11eb-91f9-8c54d3932ed8.jpeg)
+![60](https://user-images.githubusercontent.com/84588860/121163698-9fc01980-c814-11eb-8e69-627a692b5da6.jpeg)
+![61](https://user-images.githubusercontent.com/84588860/121164101-f4639480-c814-11eb-9c61-4654a0846236.jpeg)
+![62](https://user-images.githubusercontent.com/84588860/121164123-f9284880-c814-11eb-8456-a0d7b686c653.jpeg)
+![63](https://user-images.githubusercontent.com/84588860/121164124-f9284880-c814-11eb-8b69-1735754383f8.jpeg)
+![64](https://user-images.githubusercontent.com/84588860/121164125-f9c0df00-c814-11eb-841d-0f54b39eff33.jpeg)
+![65](https://user-images.githubusercontent.com/84588860/121164126-f9c0df00-c814-11eb-83cb-d2524305c9d5.jpeg)
+![66](https://user-images.githubusercontent.com/84588860/121164415-31c82200-c815-11eb-840b-051fda83b654.jpeg)
+![67](https://user-images.githubusercontent.com/84588860/121164422-3260b880-c815-11eb-93cd-ade89e627d62.jpeg)
+![68](https://user-images.githubusercontent.com/84588860/121164423-3260b880-c815-11eb-9dab-43bd5730c6ca.jpeg)
+![69](https://user-images.githubusercontent.com/84588860/121164425-3260b880-c815-11eb-8a2c-375cae5df5bb.jpeg)
+![70](https://user-images.githubusercontent.com/84588860/121164428-3260b880-c815-11eb-93c5-34ce7dabec6d.jpeg)
+![71](https://user-images.githubusercontent.com/84588860/121164503-3db3e400-c815-11eb-95eb-fb9d4f65b4c5.jpeg)
+![72](https://user-images.githubusercontent.com/84588860/121164539-43112e80-c815-11eb-908d-2a3f3026debb.jpeg)
+![73](https://user-images.githubusercontent.com/84588860/121164542-43112e80-c815-11eb-8be5-201d1ba0a421.jpeg)
 
 
 # 4. Video 
