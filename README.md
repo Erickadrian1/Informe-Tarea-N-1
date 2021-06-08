@@ -108,6 +108,18 @@
 
 **Ejercicios Capitulo 2**
 
+![49](https://user-images.githubusercontent.com/84588860/121161076-40f9a080-c812-11eb-827a-aa52fa150f4f.jpeg)
+
+
+# 4. Video 
+
+https://www.youtube.com/watch?v=e7ZdFN8BdEY&t=8s
+
+
+
+
+
+
 
 
 
