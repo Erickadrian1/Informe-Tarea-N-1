@@ -44,3 +44,5 @@
 •	Diferenciar los diferentes tipos de fuentes de corriente que existen y cuál es su correcto uso en diferentes aparatos electrónicos. 
 
 2. Marco Teorico 
+
+![MARCO TEORICO CAP 1 CIRCUITOS](https://user-images.githubusercontent.com/84588860/121102588-8e9aec80-c7c3-11eb-96d6-864673de315a.jpeg)
