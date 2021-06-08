@@ -57,6 +57,8 @@
 
 **Ejercicios Capitulo 1**
 
+![1](https://user-images.githubusercontent.com/84588860/121133271-c1f76e80-c7f7-11eb-8bab-a8c313da8190.jpeg)
+
 
 
 
